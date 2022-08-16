@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @VirusBoy-Crash🥸
 - 👀 I’m interested in discovering technology🙊
-- 🌱 I’m currently learning java🙈
+- 🌱 I’m currently a student🙈
 - 💞️ I’m looking to collaborate on Android Projects🙉
 - 📫 Reach me.😉
 
